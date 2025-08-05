@@ -1,5 +1,5 @@
 # induction program 
-## Day 1 ( 31 july ) 
+# Day 1 ( 31 july ) 
  - Hi, myself Charanjot kaur pursuing first year B.Tech in computer science and engineering, I was little excited that how will my first day of college will go.
  - A warm and inspiring welcome was given to students of B.Tech Computer Science and Engineering(CSE) and B.Tech Information Technology(IT) at Guru Nanak Dev Engineering College,Ludhiana.
  - The day began with Path and kirtan at the college Gurudwara Sahib, blessing the new beginnings of our future tech leaders.
@@ -14,3 +14,22 @@
  - Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana. 
  - The event conculded with a Vote of Thanks by Dr. K.S Maan.
  # Day 2 ( August 1 , 2025 )
+## from exploring values to assessing skills , the day was packed with purpose!
+## Expert talk : 
+- Dr. Priya Darshni on “Universal Human Values - 1"
+  
+- Dr. Arvind Dhingra on student development via STEP & TAC
+
+- Dr. Arashdeep Singh on “Food: A Pivotal Role in Student’s Overall Wellness". English & Maths Proficiency Tests were conducted for all streams to assess foundational skills. Buddy4Study team guided students on scholarship opportunities for 1st year. Together, we continue shaping a journey of purpose, learning, and well-being!
+- # Day 3 (2 August 2025)
+- ## A day full of inspiration, interaction, and introspection for our CSE & IT freshers!
+  
+- Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
+
+- Dr. Priya Darshni continued with “Universal Human Values - 1”, enriching young minds with clarity and purpose.
+
+- Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with his motivating words.
+
+- Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
+## Learning, laughter, and self-discovery — all rolled into one powerful day! 
+- As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry.
