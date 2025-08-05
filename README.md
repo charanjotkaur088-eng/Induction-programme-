@@ -10,6 +10,6 @@
  - Dr.Akshay Girdhar(Dean Academics)
  - Dr.Parminder Singh(Dean Student Welfare)
  ## Special thanks to our guests of honour 
- -Er.Ravinder garg ~ Chief Engineer, Municipal Corporation,Ludhiana.
- -Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana. 
- -The event conculded with a Vote of Thanks by Dr. K.S Maan.
+ - Er.Ravinder garg ~ Chief Engineer, Municipal Corporation,Ludhiana.
+ - Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana. 
+ - The event conculded with a Vote of Thanks by Dr. K.S Maan.
