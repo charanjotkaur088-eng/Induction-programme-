@@ -13,3 +13,4 @@
  - Er.Ravinder garg ~ Chief Engineer, Municipal Corporation,Ludhiana.
  - Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana. 
  - The event conculded with a Vote of Thanks by Dr. K.S Maan.
+ # Day 2 ( August 1 , 2025 )
