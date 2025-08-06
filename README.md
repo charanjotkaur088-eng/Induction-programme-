@@ -1,21 +1,21 @@
-# induction program 
+# induction program 🎉
 # Day 1 ( 31 july ) 
  - Hi, myself Charanjot kaur pursuing first year B.Tech in computer science and engineering, I was little excited that how will my first day of college will go.
  - A warm and inspiring welcome was given to students of B.Tech Computer Science and Engineering(CSE) and B.Tech Information Technology(IT) at Guru Nanak Dev Engineering College,Ludhiana.
  - The day began with Path and kirtan at the college Gurudwara Sahib, blessing the new beginnings of our future tech leaders.
  - Students where introduced to the college's legacy through a college orientation presentation, followed by a motivational video featuring our proud alumni (Sangam Arora and Arshpreet Singh), sharing how dedication and involvement beyond the classroom shaped their successful journeys.
- - ## Insightful addresses by :
+ - ##🌈 Insightful addresses by :
  - Dr.Sehijpal Singh(Principal)
  - Dr.Harpreet Kaur Grewal(HoD, Applied Sciences)
  - Dr.Akshay Girdhar(Dean Academics)
  - Dr.Parminder Singh(Dean Student Welfare)
- ## Special thanks to our guests of honour 
+ ##💫 Special thanks to our guests of honour 
  - Er.Ravinder garg ~ Chief Engineer, Municipal Corporation,Ludhiana.
  - Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana. 
  - The event conculded with a Vote of Thanks by Dr. K.S Maan.
  # Day 2 ( August 1 , 2025 )
-## from exploring values to assessing skills , the day was packed with purpose!
-## Expert talk : 
+## 🌟from exploring values to assessing skills , the day was packed with purpose!
+## 🌠Expert talk : 
 - Dr. Priya Darshni on “Universal Human Values - 1"
   
 - Dr. Arvind Dhingra on student development via STEP & TAC
@@ -31,7 +31,7 @@
 - Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with his motivating words.
 
 - Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
-## Learning, laughter, and self-discovery — all rolled into one powerful day! 
+## 🚀💫 Learning, laughter, and self-discovery — all rolled into one powerful day! 
 - As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry. But overall the day was very good.
 # Day 4 (4 August 2025)
 ## 🌄 Morning session 
