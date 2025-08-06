@@ -32,4 +32,6 @@
 
 - Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
 ## Learning, laughter, and self-discovery — all rolled into one powerful day! 
-- As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry.
+- As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry. But overall the day was very good.
+# Day 4 (3 August 2025)
+
