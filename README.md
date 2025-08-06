@@ -34,4 +34,7 @@
 ## Learning, laughter, and self-discovery — all rolled into one powerful day! 
 - As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry. But overall the day was very good.
 # Day 4 (4 August 2025)
+## 🌄 Morning session 
+From 10:30 AM to 11:30 AM, we attended an engaging English Lecture delivered by Prof. Manjot kaur .
+Her teaching style made the session lively and informative, encouraging active participation from the students.
 
