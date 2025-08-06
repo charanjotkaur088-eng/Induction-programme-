@@ -38,3 +38,11 @@
 From 10:30 AM to 11:30 AM, we attended an engaging English Lecture delivered by Prof. Manjot kaur .
 Her teaching style made the session lively and informative, encouraging active participation from the students.
 
+## 🌸 Break time 
+From 11:30 AM to 12:30 PM, we had our break time — a chance to relax, interact with peers, and recharge for the upcoming sessions.
+## 🌠 Expert lecture 
+The highlight of the day was from 12:30 PM to 2:30 PM — an inspiring Expert Lecture on "Universal Human Values - 2" conducted by Dr. Priya Darshani Madam in the Auditorium.
+Her words left a lasting impression, reminding us of the importance of values in both personal and professional life.
+## 🎉 Causmic Club session 
+the cosmic club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership and innovation🚀
+# Day 5 (5 August 2025) 
