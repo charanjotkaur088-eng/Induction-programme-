@@ -56,5 +56,13 @@ prof Mandeep kaur discussed the concepts of chemistry and also examination mark 
 ## 10:30 AM – 11:30 AM | Mathematics Lecture
 prof Gagandeep kaur introduced us to Desmos & GeoGebra — powerful tools for mathematical visualization.
 The session also included life lessons beyond academics.
+## 11:30 AM – 12:30 PM | Break & Campus Exploration
+A relaxing moment to recharge and explore the beautiful GNDEC campus.
+## 🚀 12:30 PM – 2:00 PM | Dr. Arvind Dhingra
+Focused on entrepreneurship, innovation, and technical skills.
 
+## 🧪 2:00 PM – 3:00 PM | Mr. Jasvir Singh Sekhon
+A deep dive into STEM education and problem-solving.
 
+## 🧠 3:00 PM – 4:00 PM | Dr. Lakhvir Singh Khana
+Important institutional details — though admittedly, a bit on the boring side. 😅
