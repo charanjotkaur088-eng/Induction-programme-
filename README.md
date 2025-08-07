@@ -50,3 +50,11 @@ the cosmic club team also showcased their vibrant initiatives, giving freshers a
 Prof. Harminder Kaur (ECE) shared the fundamentals of Basic Electrical and Electronics Engineering, blending theory with real-life applications.
 ## 🔬 11:30 AM – 12:30 PM | Chemistry lecture 
 Prof. Mandeep kaur shared practical insights, making complex concepts easy and interesting.
+# 🌄 DAY 6 – 6 August 2025
+## ⚗️ 9:30 AM – 10:30 AM | Chemistry  Lecture 
+prof Mandeep kaur discussed the concepts of chemistry and also examination mark schemes . 
+## 10:30 AM – 11:30 AM | Mathematics Lecture
+prof Gagandeep kaur introduced us to Desmos & GeoGebra — powerful tools for mathematical visualization.
+The session also included life lessons beyond academics.
+
+
