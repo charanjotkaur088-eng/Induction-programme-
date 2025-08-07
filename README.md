@@ -46,3 +46,7 @@ Her words left a lasting impression, reminding us of the importance of values in
 ## 🎉 Causmic Club session 
 the cosmic club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership and innovation🚀
 # Day 5 (5 August 2025) 
+## 🎊 10:30 AM – 11:30 AM | BEEE Lecture
+Prof. Harminder Kaur (ECE) shared the fundamentals of Basic Electrical and Electronics Engineering, blending theory with real-life applications.
+## 🔬 11:30 AM – 12:30 PM | Chemistry lecture 
+Prof. Mandeep kaur shared practical insights, making complex concepts easy and interesting.
