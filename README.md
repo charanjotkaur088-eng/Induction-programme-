@@ -53,10 +53,10 @@ Prof. Mandeep kaur shared practical insights, making complex concepts easy and i
 # 🌄 DAY 6 – 6 August 2025
 ## ⚗️ 9:30 AM – 10:30 AM | Chemistry  Lecture 
 prof Mandeep kaur discussed the concepts of chemistry and also examination mark schemes . 
-## 10:30 AM – 11:30 AM | Mathematics Lecture
+## 🧩10:30 AM – 11:30 AM | Mathematics Lecture
 prof Gagandeep kaur introduced us to Desmos & GeoGebra — powerful tools for mathematical visualization.
 The session also included life lessons beyond academics.
-## 11:30 AM – 12:30 PM | Break & Campus Exploration
+## 🎀11:30 AM – 12:30 PM | Break & Campus Exploration
 A relaxing moment to recharge and explore the beautiful GNDEC campus.
 ## 🚀 12:30 PM – 2:00 PM | Dr. Arvind Dhingra
 Focused on entrepreneurship, innovation, and technical skills.
