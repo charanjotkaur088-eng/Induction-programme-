@@ -1,5 +1,5 @@
 # induction program 🎉
-# 🚀 Day 1 ( 31 july ) 
+# 🚀 Day 1 (31 july) 
  - Hi, myself Charanjot kaur pursuing first year B.Tech in computer science and engineering, I was little excited that how will my first day of college will go.
  - A warm and inspiring welcome was given to students of B.Tech Computer Science and Engineering(CSE) and B.Tech Information Technology(IT) at Guru Nanak Dev Engineering College,Ludhiana.
  - 🙏 The day began with Path and kirtan at the college Gurudwara Sahib, blessing the new beginnings of our future tech leaders.
@@ -13,7 +13,7 @@
  - Er.Ravinder garg ~ Chief Engineer, Municipal Corporation,Ludhiana.
  - Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana. 
  - The event conculded with a Vote of Thanks by Dr. K.S Maan.
- # Day 2 ( August 1 , 2025 )
+ # 💌Day 2 ( August 1 , 2025 )
 ## 🌟from exploring values to assessing skills , the day was packed with purpose!
 ## 🌠Expert talk : 
 - Dr. Priya Darshni on “Universal Human Values - 1"
@@ -33,7 +33,7 @@
 - Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
 ## 🚀💫 Learning, laughter, and self-discovery — all rolled into one powerful day! 
 - As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry. But overall the day was very good.
-# Day 4 (4 August 2025)
+# 🌹Day 4 (4 August 2025)
 ## 🌄 Morning session 
 From 10:30 AM to 11:30 AM, we attended an engaging English Lecture delivered by Prof. Manjot kaur .
 Her teaching style made the session lively and informative, encouraging active participation from the students.
@@ -45,7 +45,7 @@ The highlight of the day was from 12:30 PM to 2:30 PM — an inspiring Expert Le
 Her words left a lasting impression, reminding us of the importance of values in both personal and professional life.
 ## 🎉 Causmic Club session 
 the cosmic club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership and innovation🚀
-# Day 5 (5 August 2025) 
+# 🌄Day 5 (5 August 2025) 
 ## 🎊 10:30 AM – 11:30 AM | BEEE Lecture
 Prof. Harminder Kaur (ECE) shared the fundamentals of Basic Electrical and Electronics Engineering, blending theory with real-life applications.
 ## 🔬 11:30 AM – 12:30 PM | Chemistry lecture 
@@ -66,7 +66,7 @@ A deep dive into STEM education and problem-solving.
 
 ## 🧠 3:00 PM – 4:00 PM | Dr. Lakhvir Singh Khana
 Important institutional details — though admittedly, a bit on the boring side. 😅
-## Final thoughts 
+## 🎊Final thoughts 
 
 My induction program at GNDEC Ludhiana was a rollercoaster of learning, interaction, inspiration, and occasional boredom.
 From spiritual beginnings to technical sessions, from motivational talks to campus explorations — these days laid the foundation for my B.Tech journey ahead. 🚀
