@@ -66,3 +66,27 @@ A deep dive into STEM education and problem-solving.
 
 ## 🧠 3:00 PM – 4:00 PM | Dr. Lakhvir Singh Khana
 Important institutional details — though admittedly, a bit on the boring side. 😅
+## Final thoughts 
+
+My induction program at GNDEC Ludhiana was a rollercoaster of learning, interaction, inspiration, and occasional boredom.
+From spiritual beginnings to technical sessions, from motivational talks to campus explorations — these days laid the foundation for my B.Tech journey ahead. 🚀
+#Day 7 (August 7, 2025)
+## 9:30 AM – 10:30 AM
+### Speaker: Dr. Amrit Kamra (Incharge - DMC)
+The day began with an enlightening session by Dr. Amrit Kamra, the incharge of the Departmental Monitoring Committee (DMC). The lecture took place in the college auditorium.
+He guided the students about the importance of academic discipline, the role of DMC in maintaining standards, and how it supports students throughout their course duration.
+## 10:30 AM – 11:30 AM
+### Speaker: Dr. Parminder Singh (Dean - Student Welfare)
+Following the first session, Dr. Parminder Singh took over the stage. He provided a comprehensive overview of various student welfare facilities available on campus.
+He also introduced the students to a wide range of clubs, societies, and extracurricular activities that help foster personal growth, leadership, and social engagement during college life.
+## 11:30 AM – 12:30 PM
+### Speaker: Dr. Randhir Singh
+### Topic: "Conduct of Examination"
+The next lecture was conducted by Dr. Randhir Singh, where he explained the complete examination process followed at GNDEC.
+The session covered critical rules, regulations, internal assessments, grading systems, and attendance policies.
+Students were advised to follow proper conduct and integrity during examinations.
+## 12:30 PM – 1:30 PM
+### Break time
+
+Students were given a break to relax, have lunch, and refresh themselves before resuming with afternoon sessions.
+
