@@ -89,4 +89,14 @@ Students were advised to follow proper conduct and integrity during examinations
 ### Break time
 
 Students were given a break to relax, have lunch, and refresh themselves before resuming with afternoon sessions.
+## 1:30 PM – 2:30 PM 
+### Session : BEE 
+### Lecture by : prof. Harminder kaur (ECE)
+Prof. Harminder Kaur (ECE) shared the fundamentals of Basic Electrical and Electronics Engineering, blending theory with real-life applications.
+## 2:30 PM – 3:30 PM
+### Surprise P2P lecture by seniors 
 
+An engaging Peer-to-Peer (P2P) session was held where senior students interacted with the newcomers. They taught the basics of Cpp (C++) language 
+
+# Conclusion
+- Overall, Day 7 of the orientation was structured, informative, and beneficial for all the new students. Each session contributed to understanding the academic culture, support systems, and opportunities offered at GNDEC.
