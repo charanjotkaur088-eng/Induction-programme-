@@ -70,7 +70,7 @@ Important institutional details — though admittedly, a bit on the boring side.
 
 My induction program at GNDEC Ludhiana was a rollercoaster of learning, interaction, inspiration, and occasional boredom.
 From spiritual beginnings to technical sessions, from motivational talks to campus explorations — these days laid the foundation for my B.Tech journey ahead. 🚀
-#Day 7 (August 7, 2025)
+# Day 7 (August 7, 2025)
 ## 9:30 AM – 10:30 AM
 ### Speaker: Dr. Amrit Kamra (Incharge - DMC)
 The day began with an enlightening session by Dr. Amrit Kamra, the incharge of the Departmental Monitoring Committee (DMC). The lecture took place in the college auditorium.
